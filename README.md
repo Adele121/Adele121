@@ -1,1 +1,2 @@
-- 👋 Hi, I’m Adele Thomas
+Adèle Thomas
+Louis-David Hébert
