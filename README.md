@@ -1,1 +1,1 @@
-Adèle Thomas et Louis-David Hébert
+Équipe "Groupe 1" : Louis-David HÉBERT et Adèle THOMAS
