@@ -1,2 +1,1 @@
-Adèle Thomas
-Louis-David Hébert
+Adèle Thomas et Louis-David Hébert
